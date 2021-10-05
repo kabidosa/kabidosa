@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kabidosa
+- 👀 I’m interested in auto sport
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on Bomby
+- 📫 How to reach me study
